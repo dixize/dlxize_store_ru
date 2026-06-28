@@ -1,0 +1,1 @@
+# dlxize_store_ru
